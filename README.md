@@ -1,0 +1,1 @@
+# Staticka-rasuta-organizacija
